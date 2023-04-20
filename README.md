@@ -1,1 +1,0 @@
-# paint-github-aa7ce
